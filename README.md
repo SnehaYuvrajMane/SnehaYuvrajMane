@@ -7,7 +7,6 @@
 
 - 👨‍💻 All of my projects are available at [snehayuvrajmane.github.io](snehayuvrajmane.github.io)
 
-- 📫 How to reach me **snehamane2532@gmail.com**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/16kOuRx9qcMUlhWyebHbdjtU_Ktpup116/view](https://drive.google.com/file/d/16kOuRx9qcMUlhWyebHbdjtU_Ktpup116/view)
 
